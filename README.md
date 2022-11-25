@@ -1,3 +1,1 @@
 ### Hi there 👋
-
-I am just a guy with a bit of curiosity...
